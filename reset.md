@@ -10,4 +10,4 @@ hôm nay trời đẹp
 9
 mai trời cũng đẹp
 hôm qua trời mưa
-
+tôi thích nắng
