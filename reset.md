@@ -9,4 +9,5 @@ hôm nay trời đẹp
 8
 9
 mai trời cũng đẹp
+hôm qua trời mưa
 
